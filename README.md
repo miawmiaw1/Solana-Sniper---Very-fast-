@@ -2,6 +2,8 @@
 
 <span style="color: orange;">telegram:</span> [<span style="color: red;">https://t.me/omagegambler</span>](https://t.me/omagegambler)
 
+<span style="color: orange;">telegram: Channel</span> [<span style="color: red;">https://t.me/SolBotsYF</span>](https://t.me/SolBotsYF)
+
 <span style="color: orange;">Discord:</span> [<span style="color: red;">https://discord.gg/tZkCJGPp</span>](https://discord.gg/tZkCJGPp)
 
 
